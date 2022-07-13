@@ -13,7 +13,7 @@
 - ❓ Ask me about anything related to DS\DA and related technologies.  
   
 
-- ⚡ Fun fact: My first education - Family Physician.  
+- ⚡ Random fact: My first education - Family Physician.  
   
 
 <br/>  
